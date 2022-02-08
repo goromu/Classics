@@ -40,7 +40,7 @@ caajq wxq gu tx
 
 qiiwq leewq diwk nraq
 
-tong kwaaq ngraawh tx
+tong kwaaq raawk tx
 
 ## gaat dxxm
 
