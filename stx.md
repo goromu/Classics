@@ -50,4 +50,14 @@ chxxq chxxq kronq nxq
 px leng khweng khwang  
 caj ngaajq gruuj ning  
 (keh) pajq tiw graang  
-  
+trxk paj kaaw kaang  
+ngaajq mraaq gwiin gwaang  
+ngajq kaa tewk paj sliq kwraang  
+wi lxq px wrangq lhang  
+trxk paj zuuj nguuj  
+ngaajq mraaq huuj luuj  
+ngaajq ka tewk paj kxm ruuj  
+wi lxq px wrang gruuj  
+trxk paj cha qxq  
+ngaajq mraaq daa qxq  
+wxn gaaj hwa qxq  
