@@ -42,7 +42,7 @@ ngan kuuk ngan kwxj
 baak waak ngaajq si  
 baak gwanh ngaajq qxj  
 gaat gwanh gaat pxq  
-kwxj neeng paq mxxq  
+kwxj neeng paq mxq  
 
 ## kronq nxq
 
