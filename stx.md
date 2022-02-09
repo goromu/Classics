@@ -26,13 +26,13 @@ tong kwaaq raawk tx
 ## gaat dxxm
 
 gaat tx dxxm aaj  
-laj wa trung kjok  
+laj wa trung kook  
 wi lap chii chii  
 gwaang tiiwq wa pxj  
 zxp wa kwaanh mook  
 gx mreng krxxj krxxj  
 gaat tx dxxm aaj  
-laj wa trung kjok  
+laj wa trung kook  
 wi lap maak maak  
 deq ngas deq waak  
 waj thri waj khraak  
