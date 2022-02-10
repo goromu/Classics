@@ -12,7 +12,7 @@ qiiwq leewq diwk nraq
 ngah mih gu tx  
 gu tx pxt txxk  
 ngaah mih sx bxk  
-liw zxx liw zxx  
+liw cxx liw cxx  
 tren tron panq zrxk  
 chrxm chraj graangq chxxh  
 caajq wxq chxxq tx  
@@ -49,7 +49,7 @@ kwxj neeng paq mxq
 chxxq chxxq kronq nxq  
 px leng khweng khwang  
 caj ngaajq gruuj ning  
-(keh) pajq tiw graang  
+(Ti) pajq tiw graang  
 trxk paj kaaw kaang  
 ngaajq mraaq gwiin gwaang  
 ngajq kaa tewk paj sliq kwraang  
