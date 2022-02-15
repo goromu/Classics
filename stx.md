@@ -49,7 +49,7 @@ kwxj neeng paq mxq
 chxxq chxxq kronq nxq  
 px leng khweng khwang  
 caj ngaajq gruuj ning  
-(Ti) pajq tiw graang  
+(TiK) pajq tiw graang  
 trxk paj kaaw kaang  
 ngaajq mraaq gwiin gwaang  
 ngajq kaa tewk paj sliq kwraang  
