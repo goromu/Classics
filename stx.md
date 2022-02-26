@@ -51,7 +51,7 @@ px leng khweng khwang
 caj ngaajq gruuj ning  
 (TiK) pajq tiw graang  
 trxk paj kaaw kaang  
-ngaajq mraaq gwiin gwaang  
+ngaajq mraaq gwiing gwaang  
 ngajq kaa tewk paj sliq kwraang  
 wi lxq px wrangq lhang  
 trxk paj zuuj nguuj  
